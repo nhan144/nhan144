@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nhan144
-- 👀 I’m interested in making game, website and very interesting in virtual technology.
+- 👀 I’m interested in making game, website and very interesting in virtual reality technology.
 - 🌱 I’m currently learning making mobile application.
 - 📫 How to reach me: nhan1442000@gmail.com
 
